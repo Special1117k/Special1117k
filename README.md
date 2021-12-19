@@ -1,4 +1,4 @@
-- 👋 Hi, I’m the Owner of NEW START CONSTRUCTION CO exploding out of the gates with amazing new ideas an speed
+- 👋 Hi, I’m the Owner of NEW START CONSTRUCTION CO exploding out of the gates with amazing new ideas and speed
 
 - 👀 I’m interested in making ideas and dreams into reality.
 - 🌱 I’m currently learning how to blend my knowledgable ideas to focus
